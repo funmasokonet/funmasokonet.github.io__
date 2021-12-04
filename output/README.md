@@ -1,1 +1,0 @@
-# funmasokonet.github.io
